@@ -45,7 +45,7 @@ Edad:
 - Dormir 
 - La comida 
 - Pasar tiempo con mi esposo y mi familia
-- pasar tiempo con mis aigos 
+- pasar tiempo con mis amigos 
 - Tener aventuras 
 - Descubrir y hacer cosas nuevas 
 - Compartir lo que se a los demas
