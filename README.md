@@ -1,10 +1,8 @@
-# :heart:David Flores y Wendy Infante :heart:
+# David Florez...
 
 # Informacion General
 
 Nombres completos: 
-
--Wendy Infante vera 
 
 -David florea Orozco
 
